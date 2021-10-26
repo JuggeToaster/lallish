@@ -1,2 +1,3 @@
 # lallish
-lallar runt innit
+
+Jag tar mer än dig i bänk aa vad ska du göra...
